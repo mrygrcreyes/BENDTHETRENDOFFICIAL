@@ -1,2 +1,0 @@
-# BENDTHETRENDOFFICIAL
-Shopping Website 
